@@ -1,1 +1,1 @@
-open it:- https://sanketnarkhede0923.github.io/sanketn.github.io/
+open it:-  https://sanketnarkhede0923.github.io/sanketn.github.io/
